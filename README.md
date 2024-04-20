@@ -1,4 +1,4 @@
-## 💫 About Me
+## 💫 About Me:
 🔭 I'm working in my Indie apps and also creating content about Android and iOS Development.<br>⚡ In my free time, I enjoy traveling, hiking, running, and going to the gym, taking photos, playing video games and watching animes.
 
 
